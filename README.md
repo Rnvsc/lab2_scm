@@ -9,8 +9,7 @@
 ![alt text](https://ns.clubmed.com/amn/2016/web-pages/b2c/screensavers/1080p/b2c-1920x1080-screensaver-3-CAFR.png)
 
 
-Ce fichier a été crée Le 6 Avril 2023.
-
+Ce fichier a été crée Le 6 Avril 2024.
 ## test2
 
 You are responsible for reading an article posted at the end of each class. You must thoroughly read the article, define the highlighted vocabulary and be ready to participate in class discussion.
